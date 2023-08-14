@@ -23,9 +23,9 @@ All variants included in the google drive link above.
 # [xact (maliszewski edit)](https://cdn.discordapp.com/attachments/878013440810172456/998513299794706432/xact.osk)
 ![](https://osu.ppy.sh/ss/17982547/d29a)
 
-# [Aristia(Edit) + mrekk](https://drive.google.com/file/d/1nZkbsWjfDXJu9-VONuZV_DiYOjteMW25/view)
-vv idke trail, and old yellow cursor in the cursor folder.
-![](https://i.imgur.com/1mVGsiY.png)
+# [Aristia(Edit)](https://drive.google.com/file/d/1_Y7LEgOpBK9QnEBwqPV20vatdd_xfU6w/view?usp=sharing)
+
+![](https://i.imgur.com/rYiU1n2.png)
 
 # [《CK》 Bacon boi 1.0 『blue』](https://joofixd.s-ul.eu/Idc2Mdek)
 ![](![image](https://user-images.githubusercontent.com/47702237/179339904-eb325c4a-6daa-4c77-9ada-d14b1ccb82f1.png)
